@@ -33,4 +33,7 @@ beaches and enjoy reading fantasy
 romances. I live with my husband and 
 two ginger cats - Ķiploks (Garlic) and
 Grauzdiņš (Toast), and I am ready to
-change my career path. 
+change my career path.
+
+- **Elīna Sadauska**
+I live in Riga, 30 years old. I'm a project manager currently working in urban mobility innovations. Previously did a lot within culture and creative industries, but now ready for a full shift in my career. I love hiking, travelling, gaming, watching sports, and I appreciate a good TV series. 
